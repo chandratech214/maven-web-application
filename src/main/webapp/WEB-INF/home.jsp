@@ -25,7 +25,7 @@
 		SGR Dental college Road,
 		Martha Halli,Opp To Madhurai Iddly House
 		Bangalore.
-		+91-9980923226
+		+91-8008008005
 	</span>
 </div>
 <hr>
