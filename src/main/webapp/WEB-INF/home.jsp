@@ -21,7 +21,7 @@
 
 	</span>
 	<span style="font-weight: bold;">
-		Mithun Technologies, 
+		IAS study circle, 
 		SGR Dental college Road,
 		Martha Halli,Opp To Madhurai Iddly House
 		Bangalore.
