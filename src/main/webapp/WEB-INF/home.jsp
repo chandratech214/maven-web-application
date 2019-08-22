@@ -24,7 +24,7 @@
 		IAS study circle, 
 		SGR Dental college Road,
 		Martha Halli,Opp To Madhurai Iddly House
-		Bangalore.
+		Bengaluru.
 		+91-8008008005
 	</span>
 </div>
